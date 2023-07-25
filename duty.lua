@@ -1,0 +1,2 @@
+--Join there to get password and all code
+--https://discord.gg/VKGRKafV8F
